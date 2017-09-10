@@ -9,10 +9,7 @@ I am a student who likes gaming
 ### More Information
 
 Specialist subjects:
-science - astronomy
-geography - general knowledge
-RS/philosophy - deep thinking
-History - communism
+Astronomy - History of communism - Philosophy
 
 ### Contact me
 
