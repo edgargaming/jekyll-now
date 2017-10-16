@@ -9,7 +9,7 @@ I am a student who likes gaming
 ### More Information
 
 Specialist subjects:
-Cosmology - History of communism - Philosophy
+Cosmology - Gaming - um...
 
 ### Contact me
 
