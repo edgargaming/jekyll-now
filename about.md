@@ -8,8 +8,7 @@ I am a student who likes gaming
 
 ### More Information
 
-Specialist subjects:
-Cosmology - Gaming - um...
+Specialist subjects: Gaming - um...
 
 ### Contact me
 
